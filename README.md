@@ -1,2 +1,2 @@
 # MAZETATZ
-Tattoo designing.
+Quality attoo designing.
